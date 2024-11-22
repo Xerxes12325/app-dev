@@ -9,5 +9,8 @@
 ## Why I love it:
 I love this movie because it mixes magic and adventure in a cool way. The special effects are awesome, especially the part where Balthazar uses magic to control a bunch of brooms. It’s also fun to watch how Dave learns about magic and grows into his role as an apprentice.
 
+## Fun Fact:
+- The movie is inspired by an old story called "The Sorcerer’s Apprentice," which was first written in 1797 by **Johann Wolfgang von Goethe**. You might have seen the scene with the brooms in Disney’s *Fantasia* too.
+
 ## Favorite Quote:
 > "The key to controlling magic... is knowing when to let go."
